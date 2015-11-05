@@ -9,3 +9,8 @@
 - Titular de direito que garante de forma permanente o controle da empresa
 - Geralmente 50% + 1
 - Pode eleger a maioria dos administradores
+
+## aula 2
+- Metodo de Custo ????
+- 
+
